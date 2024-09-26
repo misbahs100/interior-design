@@ -1,1 +1,1 @@
-# interior-desin
+# interior-design
